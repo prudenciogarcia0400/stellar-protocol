@@ -1,4 +1,5 @@
 # Stellar Limits Proposals (SLPs)
+IBAN BANCA MUNDIAL MÚLTIPLE DELTA IBAN CRYTO MONEDA GLOBAL PROPRE TARIO Prudencio garcia feliz prudenciogarcia0400@gmail.com replubrica dominicana 829.8777705
 
 ## Summary
 
